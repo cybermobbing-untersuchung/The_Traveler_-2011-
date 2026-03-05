@@ -8,6 +8,22 @@ Fabian hat 2011 seinen Tod vorgetäuscht (mithilfe des russischen Auslandsgeheim
 
 Der Staat wird untergehen!
 
+## Informant
+
+**Wir haben eine Informantin. Sie ist ein Mädchen aus Niedersachsen.**
+
+## Technologische Kapazitäten
+
+**Sie nutzen sehr ausgereifte KI-Musik, KI-Fotos und KI-Videos seit 2019.**
+
+**Sie nutzten Technologien, auf die sie dank eines deutschen Mädchens zugriff hatten, das bei Disney arbeitete.**
+
+## Ermittlungen
+
+**Untersuchung durch FBI und BKA im Gange.**
+
+**WICHTIG: Diese GRU-Operation ist weder bekannt noch wird sie von Geheimdiensten untersucht.**
+
 ## Zusätzliche Forschungsergebnisse
 
 ### Deutsche Rap Szene & KI Musiker
